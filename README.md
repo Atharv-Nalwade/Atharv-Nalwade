@@ -5,7 +5,7 @@
 
 - ⚡ Fun fact : **I am good at Poor Jokes 😅**
 
-- 🧠 Believes in : **Learning to Live and Living to Learn **
+- 🧠 Believes in : **Learning to Live and Living to Learn**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
