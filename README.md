@@ -3,8 +3,6 @@
 
 - 📫 How to reach me **atharv.n2002@gmail.com**
 
-- 📄 Know about my experiences [ Resume ](https://drive.google.com/file/d/1zjEkSCbzxEijigb57tl464G47eZ_pQ5E/view?usp=sharing)
-
 - ⚡ Fun fact : **I am good at Poor Jokes 😅**
 
 - 🧠 Believes in : **Learning to Live and Living to Learn**
